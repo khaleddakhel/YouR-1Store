@@ -1,1 +1,0 @@
-# YouR-1Store
